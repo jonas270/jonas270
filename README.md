@@ -2,9 +2,9 @@
 
 -💻 Atualmente estudando front-end
 
--🚀 A procura de um estágio
+-🚀 Programação e Marketing Digital
 
--🎓 7º periodo Bacharel em Sistemas de Informação
+-🎓 Bacharel em Sistemas de Informação
 
 -🏫 IFMG-SJE
 
